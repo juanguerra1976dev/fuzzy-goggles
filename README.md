@@ -1,2 +1,8 @@
 # fuzzy-goggles
-This fuzzy-goggles repository represents my first one
+
+Uruguayan Front-end Developer
+Have a Front-end job for me?
+
+Please reach me at:
+
+buy.me.a.glass.of.water@gmail.com
